@@ -1,4 +1,4 @@
-- 👋 Hola, soy @Sheynos
+- 👋 Hola, soy @Sheynos (nuevaCC)
 
 - 
 - 💻 Actualmente soy estudiante de Ingeniería en Informática DuocUC ...
