@@ -7,7 +7,7 @@
 - 👨‍💻 Tengo conocimientos intermedios en Python-Java-SQL-Ps-PremierPRO-Filmora12-SonyVegas-Ae...
 
 - 
-- 📫 Me puedes encontrar como ChristianVzzT@gmail.com ...
+- 📫 Me puedes encontrar en ds como silence_v1
 
 - 
 - ⚡ Fun fact soy de chile.
