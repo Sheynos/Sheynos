@@ -7,7 +7,7 @@
 - 👨‍💻 Tengo conocimientos intermedios en Python-Java-SQL-Ps-django-GitHub-Vs-Ae...
 
 - 
-- 📫 Me puedes encontrar en ds como silence_v1
+- 📫 Me puedes encontrar en ds como nero_v1
 
 - 
 - ⚡ Fun fact soy de chile.
